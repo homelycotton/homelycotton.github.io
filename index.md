@@ -3,7 +3,7 @@ layout: default
 title: HomelyCotton
 ---
 
-# Willkommen bei HomelyCotton
+# Willkommen bei HomelyCotton ✿
 
 Willkommen in unserem Online‑Shop! Wir freuen uns, dass Sie sich für unsere Stoffe interessieren und möchten Ihnen hier einen Überblick über unsere Bestellabwicklung geben.
 
