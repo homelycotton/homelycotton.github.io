@@ -1,0 +1,30 @@
+---
+layout: default
+title: HomelyCotton
+---
+
+# Willkommen bei HomelyCotton
+
+Willkommen in unserem Online‑Shop! Wir freuen uns, dass Sie sich für unsere Stoffe interessieren und möchten Ihnen hier einen Überblick über unsere Bestellabwicklung geben.
+
+Alle Informationen zu Produktverfügbarkeit, Preisen und technischen Eigenschaften der Stoffe finden Sie auf unserer Instagram‑Seite [@homelycotton](https://www.instagram.com/homelycotton/). Klicken Sie einfach auf die Beitragsbeschreibungen oder Reels, um detaillierte Informationen zum jeweiligen Stoff zu erhalten.
+
+Bitte beachten Sie, dass wir Bestellungen ausschließlich über Direktnachricht auf unserem Instagram‑Konto entgegennehmen. Senden Sie uns einfach ein Foto des gewünschten Stoffes und der benötigten Menge. Nachdem Ihr Zahlungseingang bestätigt wurde, schneiden wir Ihre Bestellung zu. Wenn die Zahlungsfrist 24 Stunden überschreitet, vergewissern Sie sich bitte, dass der Stoff in unserem Lager noch verfügbar ist, bevor Sie zahlen.
+
+Die Lieferzeit beträgt je nach Auslastung des Lagers 1–2 Tage. Wir versenden innerhalb der gesamten Europäischen Union mit der Deutschen Post oder DHL zu Versandkosten, die sich nach Gewicht und Lieferadresse richten. Bei Fragen senden Sie uns bitte eine Direktnachricht über unsere Instagram‑Seite.
+
+## Rechtliche Hinweise
+
+- [AGB](./agb.md)
+- [Datenschutzerklärung](./datenschutzerklaerung.md)
+- [Widerrufsrecht](./widerrufsrecht.md)
+
+## Impressum
+
+Sergienko  
+Steuernummer: 19/532/05310  
+Zeppelinstr. 67, 13583 Berlin  
+Telefon: +49 160 96812480  
+E‑Mail: homelycotton@gmail.com  
+
+Dieses Impressum gilt auch für unsere Facebook‑Seite und unseren Instagram‑Account.
