@@ -27,4 +27,4 @@ Zeppelinstr. 67, 13583 Berlin
 Telefon: +49 160 96812480  
 E‑Mail: homelycotton@gmail.com  
 
-Dieses Impressum gilt auch für unsere Facebook‑Seite und unseren Instagram‑Account.
+Dieses Impressum gilt auch für unsere [Facebook‑Seite](https://www.facebook.com/profile.php?id=100075763849957) und unseren [Instagram‑Account](https://www.instagram.com/homelycotton/).
