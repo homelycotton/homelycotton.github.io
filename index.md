@@ -11,7 +11,7 @@ Alle Informationen zu Produktverfügbarkeit, Preisen und technischen Eigenschaft
 
 Bitte beachten Sie, dass wir Bestellungen ausschließlich über Direktnachricht auf unserem Instagram‑Konto entgegennehmen. Senden Sie uns einfach ein Foto des gewünschten Stoffes und der benötigten Menge. Nachdem Ihr Zahlungseingang bestätigt wurde, schneiden wir Ihre Bestellung zu. Wenn die Zahlungsfrist 24 Stunden überschreitet, vergewissern Sie sich bitte, dass der Stoff in unserem Lager noch verfügbar ist, bevor Sie zahlen.
 
-Die Lieferzeit beträgt je nach Auslastung des Lagers 1–2 Tage. Wir versenden innerhalb der gesamten Europäischen Union mit der Deutschen Post oder DHL zu Versandkosten, die sich nach Gewicht und Lieferadresse richten. Bei Fragen senden Sie uns bitte eine Direktnachricht über unsere Instagram‑Seite.
+Die Lieferzeit beträgt je nach Auslastung des Lagers 1–2 Tage. Wir versenden innerhalb der gesamten Europäischen Union mit der Deutschen Post, Hermes oder DHL zu Versandkosten, die sich nach Gewicht und Lieferadresse richten. Bei Fragen senden Sie uns bitte eine Direktnachricht über unsere Instagram‑Seite.
 
 ## Rechtliche Hinweise
 
