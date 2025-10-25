@@ -21,8 +21,8 @@ Die Bestellvorbereitungszeit beträgt je nach Auslastung des Lagers 1–2 Tage. 
 
 ## Impressum
 
-Sergienko  
-Steuernummer: 19/532/05310  
+Anna Sergienko  
+Ust-IdNr: DE418603498
 Zeppelinstr. 67, 13583 Berlin  
 Telefon: +49 160 96812480  
 E‑Mail: homelycotton@gmail.com  
