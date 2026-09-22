@@ -25,8 +25,8 @@ Verantwortlicher Anbieter dieses Internetauftritts im datenschutzrechtlichen Sin
 
 
 Anna Sergienko <br>
-Zeppelinstr. 67 <br>
-13583, Berlin <br>
+Chamisostraße 1 <br>
+13587, Berlin <br>
 Telefon: +49 16096812480 <br>
 E-Mail: homelycotton@gmail.com <br>
 ****
