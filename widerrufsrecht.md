@@ -79,7 +79,7 @@ Das Widerrufsrecht besteht nicht bei Verträgen zur Lieferung von Waren, die nic
 An
 
 **Anna Sergienko** <br>
-Chamisostraße 1 <br>
+Chamissostraße 1 <br>
 13587  Berlin <br>
 Deutschland <br>
 E-Mail: homelycotton@gmail.com <br>
