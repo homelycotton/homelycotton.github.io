@@ -24,7 +24,7 @@ Um Ihr Widerrufsrecht auszuüben, müssen Sie uns
 
 
 **Anna Sergienko** <br>
-Chamisostraße 1 <br>
+Chamissostraße 1 <br>
 13587  Berlin <br>
 Deutschland <br>
 E-Mail: homelycotton@gmail.com <br>
